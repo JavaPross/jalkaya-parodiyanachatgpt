@@ -1,0 +1,1 @@
+# jalkaya-parodiyanachatgpt
